@@ -1,0 +1,2 @@
+# Asilbek
+meniyaxwi odam man
